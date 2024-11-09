@@ -1,1 +1,1 @@
-# muyeliu is bad at coding
+# muyeliu is very bad at coding and will fail all cs courses
